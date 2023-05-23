@@ -1,2 +1,3 @@
 # Wingman
-looking,need,or just want a friend for the night.. lets connect a wingman or wingwoman.
+low-key or ridong solo? 
+connect with a wingman & vibe out.
